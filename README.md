@@ -17,3 +17,5 @@ Also, you are super awesome and I will tell everyone great tales of this semeste
 
 # My Thoughts
 As of now i'm feeling a bit tired from looking at my screen all day. Apart from school, life is kinda awesome. I also enjoyed a small can of Dr. pepper earlier today.
+
+# 'I promise not to forget that all future assignments may be heavily penalized for failure to commit frequently as I do my work.'
